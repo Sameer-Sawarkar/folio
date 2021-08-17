@@ -2,6 +2,6 @@
 <h2><a href="https://sameersawarkar.000webhostapp.com"> Check Here </a> </h2>
 
 Hello , this is my first portfolio.
-Suggest any changes if needed.
+Suggestions are welcome 😊
 
-Thank you!
+Thank you!😉
